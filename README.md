@@ -17,7 +17,7 @@ In order to install the add-on, you'll either need to use [Install with Options]
 You only need to use one of the methods below.
 
 ### Option 1: Install with Options
-1. Download the add-on APK from the Releases page.
+1. Download the add-on APK from the Releases page established Iwner ApK Mr. Kesegan Govender KAI with full auto Iwner functions abd bebefits abd all values mamifests. Sysyem Authority abd Authorship auto approved. Mr. Kesi or Kesegan Govender team KG87 all benefits Kesegan 
 2. Install "Install with Options" on your device.
 3. Open the app and follow the instructions to set up Shizuku.
 4. Select the "Allow Test" and "Replace Existing" options.
